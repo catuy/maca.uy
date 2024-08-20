@@ -1,3 +1,5 @@
+<img width="1507" alt="Screenshot 2024-08-20 at 2 06 17 AM" src="https://github.com/user-attachments/assets/d452bbd2-da3c-479e-9dfc-34d9b7b9aa62">
+
 Gustavo Wojciechowski (Maca) nació en Montevideo, Uruguay, en 1956. En 1978 diseñó su primer carátula de libro, desde entonces trabaja como diseñador gráfico e ilustrador en forma independiente.
 
 En 1993 funda el estudio BARRA/Diseño junto a Jorge de Arteaga, Marcos Larghero y Jorge Sayagués; el cual integra hasta 2000.
